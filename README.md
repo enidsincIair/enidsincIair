@@ -13,4 +13,4 @@ charlotte or bonnibel  ‎  ‎ ೨ ‎  ‎   ${\textsf{\color{#ef7194}under 16
 
 [@yeIIowjackets](https://github.com/yeIIowjackets)  ‎  ‎ ︵  ‎  ‎  main account
 
-[`rentry`](https://rentry.co/serotoninsupply) ₊ [`prns.cc`](https://pronouns.cc/@qntlerqueen) ₊ [`strawpage`](https://ritualbeating.straw.page)
+[`rentry`](https://rentry.co/serotoninsupply) ₊ [`prns.cc`](https://pronouns.cc/@deerprophet) ₊ [`strawpage`](https://deerprophet.straw.page)
