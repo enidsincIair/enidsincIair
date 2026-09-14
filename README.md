@@ -9,8 +9,8 @@ ${\textsf{\color{#8faace}in~the}}$ ${\textsf{\color{#8faace}side}}$ of my neck!
 
 charlotte or bonnibel  ‎  ‎ ೨ ‎  ‎   ${\textsf{\color{#ef7194}under 16 dnf}}$
 
-―  ‎‎ asexual  ${\textsf{\color{#ef7194}werewolf}}$ lesbithing  ‎  ‎ ⟡
+―  ‎‎ aroflux  ${\textsf{\color{#ef7194}werewolf}}$ lesbithing  ‎  ‎ ⟡
 
 [@yeIIowjackets](https://github.com/yeIIowjackets)  ‎  ‎ ︵  ‎  ‎  main account
 
-[`rentry`](https://rentry.co/serotoninsupply) ₊ [`prns.cc`](https://pronouns.cc/@deerprophet) ₊ [`strawpage`](https://deerprophet.straw.page)
+[`rentry`](https://rentry.co/serotoninsupply) ₊ [`prns.cc`](https://pronouns.cc/@deerprophet/enidsinclair) ₊ [`strawpage`](https://deerprophet.straw.page)
